@@ -1,1 +1,2 @@
-free to use i cane you copy me
+Z-City Gamemode Use Notice
+And This Is Work in Progress  
